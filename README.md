@@ -182,6 +182,11 @@ I've noticed a few things already  ¬DUDE you're literally 11 you CANNOT be talk
 <p align="left">
 </p>
 
+
+New art! By me
+![image alt](https://github.com/Prsuer/Prsuer/blob/50c3ba7d5d4d653ef55074add2279d41e402e5ad/Untitled37_20250727131317.png)
+
+
 Small doodles of Me and my partner, both ocs and irl ٩(ˊᗜˋ*)و ♡
 ![image alt](https://github.com/Tension-Perfection/Tension-perfection/blob/c90644364b3b5f01c6ee2bcf90bedf5b77cf3737/IMG_20250611_160321.jpg)
 ![image alt](https://github.com/Tension-Perfection/Tension-perfection/blob/c90644364b3b5f01c6ee2bcf90bedf5b77cf3737/IMG_20250611_160310.jpg) 
