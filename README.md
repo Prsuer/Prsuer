@@ -66,8 +66,7 @@ R6![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob
 - (*ᴗ͈ˬᴗ͈)ꕤ*.ﾟ I also love making new friends so please don't be shy to approach me! I'm quite shy as well.. **Heads up! I get very comfortable guys.. AS IN THE MOST. MOST. NORMAL THING I WOULD SAY IS "Don't make PAPI CHULO angry dawg".. Remind me when you guys get uncomfy okay..**
 
 
-**¬ (..◜ᴗ◝..) School started, I'll rarely be spotted or rarely around, I leave at 6am and I get home at 4pm-5pm
- Where to spot me? ¦ Regretevator area or DW area (╥﹏╥)**
+**¬ (..◜ᴗ◝..) not online much anymore (╥﹏╥)**
 
 
 - (..◜ᴗ◝..) Hobbies [Writing songs for myself, Playing my guitar, VC/Hang out W friends, Drawing](I mostly do multitasking, and despite being Busy, I always have time to spend time w my friends..)
