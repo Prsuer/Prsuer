@@ -6,7 +6,7 @@ R6![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob
 
  X ¬ circ0s
  
- Disc ¬ looeyli :</h3>
+ Disc ¬ ltraqqed :</h3>
 <p align="left">
 </p>
  
