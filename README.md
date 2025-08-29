@@ -32,8 +32,6 @@ R6![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob
 
 ┆
 
-┆　　　Norbit
-
 ┆
 
 ┆　　　(≖⩊≖) I don't mind being called by my irl name!
